@@ -6,7 +6,7 @@
 
 ## 📫 How to Reach Me | 联系方式
 - Email: ismoshushi@gmail.com
-- X: [moshushi](https://x.com/moshushix)
+- X: [moshushi](https://x.com/idsahm)
   
 ## 🌟 Visitors | 访客数
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=ismoshushi/ismoshushi)
