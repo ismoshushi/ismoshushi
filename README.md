@@ -7,6 +7,9 @@
 ## 📫 How to Reach Me | 联系方式
 - Email: ismoshushi@gmail.com
 - X: [moshushi](https://x.com/idsahm)
-  
+
+## 📖 AI魔法宝典 持续更新
+https://pan.quark.cn/s/c9b32a18fdc2
+
 ## 🌟 Visitors | 访客数
 ![Visitors](https://visitor-badge.laobi.icu/badge?page_id=ismoshushi/ismoshushi)
